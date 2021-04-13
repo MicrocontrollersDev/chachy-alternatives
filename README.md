@@ -1,5 +1,5 @@
 # chachy-alternatives
-fuck chachy
+fuck you chachy
 
 
 - Systemless - better in every single way
