@@ -6,6 +6,7 @@ fuck you chachy
 - Bruno - havent seen this guy in a good year but still a better alternative
 - Noctember - plays valorant
 - Conor - conor
+- Zordlan - she exists idk
 
 # things not to do
 - don't be chachy
