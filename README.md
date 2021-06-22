@@ -7,6 +7,7 @@ fuck you chachy
 - Conor - conor
 - Proudmuslim - not british
 - Zordlan - she exists idk
+- Wyvest - made timerhud and then fjsdjfgngjgnjogngnsdjhnrwjhrwnr
 
 # things not to do
 - don't be chachy
