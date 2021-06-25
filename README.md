@@ -8,6 +8,7 @@ fuck you chachy
 - Proudmuslim - not british
 - Zordlan - she exists idk
 - Wyvest - made timerhud and then fjsdjfgngjgnjogngnsdjhnrwjhrwnr
+- asbyth - patcher
 
 # things not to do
 - don't be chachy
