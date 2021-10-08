@@ -6,7 +6,7 @@ fuck you chachy
 - Noctember - plays valorant
 - Conor - conor
 - Proudmuslim - not british
-- Zordlan - she exists idk
+- lis - she exists idk
 - Wyvest - made timerhud and then fjsdjfgngjgnjogngnsdjhnrwjhrwnr
 - asbyth - patcher
 
