@@ -1,13 +1,14 @@
 # chachy-alternatives
 fuck you chachy
 
-- Systemless - better in every single way
+- Systemless - better in every single way (biased)
 - Bruno - havent seen this guy in a good year but still a better alternative
 - Noctember - plays valorant
 - Conor - conor
 - Proudmuslim - not british
-- lis - she exists idk
+- skye - she exists idk
 - Wyvest - made timerhud and then fjsdjfgngjgnjogngnsdjhnrwjhrwnr
+- ethan - super cool businessing person
 - asbyth - patcher
 
 # things not to do
