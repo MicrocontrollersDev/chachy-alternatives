@@ -10,6 +10,7 @@ fuck you chachy
 - Wyvest - made timerhud and then fjsdjfgngjgnjogngnsdjhnrwjhrwnr
 - ethan - super cool businessing person
 - asbyth - patcher
+- myer - also plays valorant but literally doesn't exist
 
 # things not to do
 - don't be chachy
